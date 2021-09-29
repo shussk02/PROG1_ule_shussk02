@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shussk02
+- 👀 I’m interested in cybersecurity 
+- 🌱 I’m currently learning java programming
+- 💞️ I’m looking to collaborate on everything that is under my range, which is constantly expanding.
+- 📫 How to reach me shussk02@estudiantes.unileon.es
